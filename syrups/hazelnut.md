@@ -7,6 +7,7 @@
 - 1 cup sugar
 - 1 cup water
 - 1 cup of raw hazelnuts
+- 1 cup of almonds
 
 ## How to Make
 
